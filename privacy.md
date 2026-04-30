@@ -1,8 +1,8 @@
-Privacy Policy – Best10 
+Privacy Policy – Bels10 
 
 Last updated: 19 April 2026
 
-This Privacy Policy describes how Best10 (the “App”) handles user data.
+This Privacy Policy describes how Bels10 (the “App”) handles user data.
 
 Developer Information
 Developer: Marco – M Contact: Marcobizzullo@hotmail.com
